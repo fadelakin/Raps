@@ -22,7 +22,7 @@ but it's ok. i don't trip cuz my moms is always with me
 
 hold my fans that cop my cd, rhymes is always listening
 
-your glow is always glisten cuz we got to be above
+your glow is always glistening cuz we got to be above
 
 and if you're a little short on rent, i could spot you another dub
 
@@ -48,7 +48,7 @@ i went to college, paid my homage, now my mom is framing my degree, check the pa
 
 but i'm still rapping, still making minimum wage 
 
-and the aunties still saying not a bit of them's aged
+and the aunties still saying not a bit of 'em's aged
 
 but i guess that's just life, it's beautiful ain't it. 
 
@@ -102,7 +102,11 @@ and i know that god is listening so hold that note
 
 and i'm banished.
 
+[outro]
 
----
+it's my illusions, my illusions, my illusions . . . of oasis
 
-my illusions of oasis
+it's my illusions, my illusions . . . of oasis
+
+yeah
+
