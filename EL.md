@@ -2,7 +2,7 @@
 
 [Intro]
 
-i've seen a lot of pain in my life but i've found that appreciating the beauty in this pain is how I'm able to grow from it. Follow me 
+i've seen a lot of pain in my life but i've found that appreciating the beauty in this pain is how I'm able to grow from it. follow me 
 
 [verse]
 
@@ -105,4 +105,4 @@ and i'm banished.
 
 ---
 
-My illusions of oasis
+my illusions of oasis
