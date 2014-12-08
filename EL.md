@@ -2,7 +2,7 @@
 
 [Intro]
 
-i've seen a lot of pain in my life but i've found that appreciating the beauty in this pain is how I'm able to grow from it. 
+i've seen a lot of pain in my life but i've found that appreciating the beauty in this pain is how I'm able to grow from it. Follow me 
 
 [verse]
 
